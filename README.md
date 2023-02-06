@@ -1,1 +1,1 @@
-# singlebucks.blogspot.com
+https://singlebucks.blogspot.com
